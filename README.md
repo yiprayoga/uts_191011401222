@@ -7,3 +7,6 @@ NAMA : YULIAN ISLAM PRAYOGA
 NIM  : 191011401222
 
 
+Sreenshot :
+
+![UTS_191011401222](https://user-images.githubusercontent.com/66892087/163818767-f96ff7bd-0654-440e-ba02-76a77b53630d.jpg)
